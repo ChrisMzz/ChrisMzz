@@ -15,7 +15,7 @@ As previously mentionned, I like math a lot, so as of 2022 I'm still a student b
 <br>
 <br>
 Apart from math, I guess I should probably mention I have a huge history with music production (<strong>Chris Mzz.</strong> on Spotify and YouTube if that's something you're into 👀) 
-and I also have plans to get a career in that field.
+and I also have plans to get a career in Numerical Analysis, either to work in music plugin production or biotech.
 <br>
 <br>
 If you want to e-mail me, my student e-mail is <i>christopher.mazzerbo@etu.univ-amu.fr</i>, so feel free if you need help with any project, I'd be happy to help ^^
